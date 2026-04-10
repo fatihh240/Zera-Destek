@@ -4,9 +4,9 @@ Zera'yı kullandığınız için teşekkür ederiz! Uygulamamızla ilgili herhan
 
 ## İletişim
 
-* **E-posta:** [senin.mail.adresin@email.com]
+* **E-posta:** fatihhmmmm@gmail.com
 
 > Not: E-posta gönderirken cihaz modelinizi (örn: iPhone 15) ve kullandığınız iOS sürümünü belirtmeniz, size daha hızlı yardımcı olmamı sağlayacaktır.
 
 ---
-© 2026 Fatih [Soyadın]
+© 2026 Fatih Mehmet Menteşe
